@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Kosmic!
+- 👋 Hi, I’m Twiz!
 - 👀 I’m interested in codes n' crap.
 - 🌱 I’m currently learning HOW to code, lol.
 
